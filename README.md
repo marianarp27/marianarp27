@@ -1,5 +1,5 @@
 
 Hello there! 👋 
 > 🎓 Computer Engineer student <br>
-> Also passionate about Design
-> [Dribbble](https://dribbble.com/marianarp27) | [Behance](https://www.behance.net/marianarp27)
+> 💜 Passionate about Design (graphic design, web design, motion design,..) <br>
+> 🤘 Can check some of my design works at: [Dribbble](https://dribbble.com/marianarp27), [Behance](https://www.behance.net/marianarp27)
